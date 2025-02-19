@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Tusharswansi.
+- 👋 Hi, I’m Tushar Swansi.
 - 👨‍🎓 C.S.E Student.. 
 - 🌱 I’m currently working on my development skills.  
 - 📫 contact me:-tusharswansi@gmail.com..
