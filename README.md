@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Tusharswansi.
+- 👨‍🎓 C.S.E Student.. 
 - 🌱 I’m currently working on my development skills.  
-- 💞️ I’m looking to collaborate on ...
 - 📫 contact me:-tusharswansi@gmail.com..
 - 👤 Instagram:-https://www.instagram.com/_tushar_swansi_?igsh=MXI2c2hsMzdweXVtNw==
 
