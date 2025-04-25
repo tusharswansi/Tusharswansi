@@ -1,6 +1,7 @@
 - 👋 Hi, I’m Tushar Swansi.
 - 👨‍🎓 C.S.E Student.. 
-- 🌱 I’m currently working on my development skills.  
+- 🌱 I’m currently working on my development skills.
+- 🫧 Obsessed with Nephophile and Believe in *-sarva anityam-* 🔱
 - 📫 contact me:-tusharswansi@gmail.com..
 - 👤 Instagram:-https://www.instagram.com/_tushar_swansi_?igsh=MXI2c2hsMzdweXVtNw==
 
